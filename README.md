@@ -1,0 +1,2 @@
+# http-fptshop.com.vn-dien-thoai-lg-g5
+Chính thức ra mắt tại sự kiện MWC 2016 được tổ chức tại Barcelona (Tây Ban Nha), LG G5 trở thành chiếc điện thoại đầu tiên trên thế giới có thiết kế dạng module cho phép người dùng lắp ghép các thành phần để sử dụng với chức năng khác nhau. Thêm vào đó, những thông số cấu hình đầy ấn tượng của smartphone này chắc chắn sẽ đem đến sự hài lòng tối đa cho người dùng khi sử dụng máy cho các nhu cầu chụp ảnh và giải trí.
